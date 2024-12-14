@@ -2,6 +2,8 @@
 
 ![Alt text](/ecuupdate.jpg?raw=true "Ecu Update")
 
+İletişim için
+punishcrack@hotmail.com 
 
 <h1>Çok yakında vci1810.exe dosyası giriş kodu uygulaması eklenecek.</h1>
 
